@@ -1,1 +1,0 @@
-# hogepolis-website
